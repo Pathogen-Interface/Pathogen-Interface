@@ -1,7 +1,7 @@
 <p align="center"><img width="750" alt="image" src="https://i.ibb.co/v4988S7H/image-2026-10-28-235316653.png" />
 
 <p align="center">$\color{#670816}{\textsf{ 　　16-　Dni　/　Iwec　✙　Basic DNI　　 }}$
-<p align="center">$\color{#7a5d48}{\textsf{ 　Safe　Server　1　✿　offtab　all　the　time 　}}$ 
+<p align="center">$\color{#7a5d48}{\textsf{ 　Safe　Server　1　✿　offtab　half　the　time 　}}$ 
 <p align="center">$\color{#4e3e40}{\textsf{ ❤︎ }}$
 
   <div align="center">
