@@ -6,7 +6,7 @@
 
   <div align="center">
 
-[strawpage](https://rrocketlauncher.atabook.org/) 　[新book](https://rrocketlauncher.atabook.org/) 　[rentry](https://rentry.co/aboutmave)
+[strawpage](https://r0ck3tg4z3r.straw.page/) 　[新book](https://rrocketlauncher.atabook.org/) 　[rentry](https://rentry.co/aboutmave)
 
 </div>
 <p align="center"><img width="750" alt="image" src="https://i.ibb.co/XxXDGR24/image-2026-10-29-000430361.png" />
