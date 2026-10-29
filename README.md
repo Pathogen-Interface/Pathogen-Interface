@@ -14,5 +14,5 @@
 
   <div align="center">
   
-[My gf ❤︎](https://github.com/Beetlesarecoolerthanme)　[Medic](https://github.com/PHlGHTlNG)　[Connor](https://github.com/zompyre)　[Exor](https://github.com/cindercrests)　[Sling](https://github.com/sspacedoutz)　[Sage](https://github.com/meetyourdemise)　[Red](https://github.com/vixenpilled)　[Zack](https://github.com/zackingaround)　[Donne](https://github.com/shurilong/)
+[My gf ❤︎](https://github.com/Beetlesarecoolerthanme)　[Medic](https://github.com/PHlGHTlNG)　[Connor](https://github.com/zompyre)　[Exor](https://github.com/cindercrests)　[Sling](https://github.com/sspacedoutz)　[Sage](https://github.com/Wranglerkit)　[Red](https://github.com/vixenpilled)　[Zack](https://github.com/zackingaround)　[Donne](https://github.com/shurilong/)
 </div>
